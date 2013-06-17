@@ -1,0 +1,1 @@
+Android should be faster than light, a blink or a sneeze. Pretty much so fast I dont even have to start the process.
